@@ -1,5 +1,5 @@
 # 💫 About Me:
-hii! my name is mssd605. you can call me erik! i am 15 years old i like color green and blue. i like cats and bears. i rarely feel uneasy if i interact with stangers -_-
+嗨！我叫 mssd605，你可以叫我 Erik！我今年 15 岁，喜欢绿色和蓝色，也喜欢猫和熊。和陌生人交流时，我很少会感到不安 -_-
 
 
 ## 🌐 Socials:
