@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **anything**
 
-- ⚡ Fun fact **i like gren because i also like nature!!**
+- ⚡ Fun fact **i like green because i also like nature!!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
