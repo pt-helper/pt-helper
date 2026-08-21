@@ -1,5 +1,5 @@
 <h1 align="center">Hi!! , I'm mssd605!</h1>
-<h3 align="center">i try to learning to make something!!</h3>
+<h3 align="center">i will be so glad if you interact with me!!</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=mssd605zy&label=Profile%20views&color=0e75b6&style=flat" alt="mssd605zy" /> </p>
 
